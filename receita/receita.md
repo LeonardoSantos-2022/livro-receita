@@ -1,7 +1,7 @@
 
 # macarrão com calabresa:
 
-## ingredientes
+## ingredientes ###
 
 
 .2-gomo de linguisa calabresa
@@ -16,7 +16,7 @@
 meio pacote de macarrãlo espaguete cozido
 4-colheres(sopa) de queijo ralado
 
-### modo de preparo
+### modo de preparo 
 
 acrescente o alho e refogue bem.
 adicione apolpa de tomate, o MAGGI meu segredo eapimenta e mesture bem.
