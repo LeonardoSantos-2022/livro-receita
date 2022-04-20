@@ -26,3 +26,40 @@ meia cebola pequena picada
 10 folhas de manjericão
 # Montagem
 - 2 colheres (sopa) queijo parmesão ralado
+
+# Modo de preparo
+# Massa
+- 1 Em um liquidificador, bata o Leite NINHO com a farinha de trigo, o óleo, o sal e os ovos.
+
+- 2 Aqueça uma frigideira untada e coloque pequenas porções de massa.
+
+- 3 Deixe dourar levemente dos dois lados.
+
+- 4 Repita a operação até terminar a massa. Reserve.
+
+- 5 Recheio
+Em uma panela, aqueça o óleo e junte a carne moída.
+
+- 6 Tempere com o MAGGI Gril e refogue bem até ficar soltinha.
+
+- 7 Junte a água e os demais ingredientes.
+
+- 8 Cozinhe por alguns minutos para secar o excesso de líquido.
+
+# Molho
+- 9 Em uma panela, aqueça o azeite e refogue a cebola e o alho.
+
+- 10 Junte os tomates, a polpa de tomate, a abóbora e a água fervente e cozinhe por cerca de 20 minutos com a panela semi tampada.
+
+- 11 Com o auxílio de um garfo, amasse levemente a abóbora e adicione o sal e o manjericão.
+
+- 12 Ferva por mais 10 minutos e reserve aquecido.
+
+- 13 Montagem
+Recheie cada panqueca com cerca de 2 colheres (sopa) de Recheio e reserve.
+
+- 14 Em um recipiente refratário, forre o fundo com um pouco do Molho.
+
+- 15 Arrume as panquecas no refratário e cubra com o Molho restante.
+
+- 16 Polvilhe o queijo parmesão ralado e leve ao forno para gratinar. Sirva. 
